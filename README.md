@@ -1,1 +1,1 @@
-[https://pravinnair.github.io/](https://pravinnair.github.io/)
+ https://pravin1390.github.io/info/
